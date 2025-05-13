@@ -2,7 +2,7 @@
 - 👀 I’m interested in Software Development, Full Stack coding.
 - 🌱 I’m currently learning Java, Python, MCP, and CrewAI.
 - 💞️ I’m looking to collaborate on nothing currently but I am open to suggestions as I will be posting about my Project Publicly.
-- 📫 How to reach me: Phone # (317) 389 1933 ; montgomerybrooks7@gmail.com
+- 📫 How to reach me: Phone # (317) 389 1933 ; montgomerybrooks7@gmail.com ; LinkedIn www.linkedin.com/in/montgomery-brooks-75a943293
 - 😄 Pronouns: He/Him/His
 - ⚡ Fun fact: I love playing Chess
 
